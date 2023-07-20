@@ -10,5 +10,6 @@ proyectosin nada vacio como mi soledad dia a dia chamo, notas personales por pur
 * importante las buenas practicas reforzarlas
 * conitnuar diariamente con mi lectura
 * bueno en fin es pura practica todo lo tengo anotado xd
+* proximamente creare una pagina de postres
 
 como recordatorio **esto es una prueba** xd
