@@ -11,5 +11,7 @@ proyectosin nada vacio como mi soledad dia a dia chamo, notas personales por pur
 * conitnuar diariamente con mi lectura
 * bueno en fin es pura practica todo lo tengo anotado xd
 * proximamente creare una pagina de postres
+* incluira postre de limon,maracuya y mora
+* disponible solo en cines 18 de agosto blue bttle no se ingles xd 
 
 como recordatorio **esto es una prueba** xd
